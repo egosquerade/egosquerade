@@ -4,4 +4,4 @@
 </break>
 <p></p><center>c+h is so always ok and welcomed! i mostly play with my friends at times but i do get lonely after</center></p>
 </break>
-<p><center>my username is @kinggumonyong almost everywhere. i am mostly active in twt for fandom art stuff and where i usually upload my art (my commissions are also open!)</center></p>
+<p><center>my username is @kinggumonyong almost everywhere. i am mostly active in twt for fandom art stuff and where i usually upload my art</center></p>
